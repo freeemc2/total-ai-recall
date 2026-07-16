@@ -30,6 +30,8 @@ This is the free half. The files that give your AI a memory. Take them, they're 
 
 The files are the easy part. Anyone can hand you a memory folder. **The hard part is knowing how to use it** — what to save, what to skip, how to correct your AI so it learns, and how to stop it from just agreeing with everything you say.
 
-That's not in these files. That's **[The Method](../the-method/)** — and it's the difference between an AI that remembers the wrong things and one that becomes a genuine partner.
+That's not in these files. That's **[The Method — $39, one-time](https://freebird341.gumroad.com/l/gfbveh?wanted=true)** — and it's the difference between an AI that remembers the wrong things and one that becomes a genuine partner.
 
-The kit is free because the files were never the hard part. The Method is where the nine years... the nine *months* of hard-won knowledge live.
+The kit is free because the files were never the hard part. The Method is where the nine months of hard-won knowledge live.
+
+**Main site:** [totalairecall.com](https://totalairecall.com)
